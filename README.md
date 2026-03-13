@@ -1,0 +1,1 @@
+# Zadania_SystemInterakcyjny_2026_Rydzyk
